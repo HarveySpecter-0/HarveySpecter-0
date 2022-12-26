@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @HarveySpecter-0
+- 👀 I’m interested in Music and Coding
+- 🌱 I’m currently learning C++
+- 📫 How to reach me  Discord - Harvey#1187
+- The Biggest Skid on the World
